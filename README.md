@@ -1,0 +1,1 @@
+This is my first Project that i will finish till end. Becaus Odin, till yet, is the best way to get a good understanding not only for coding more than how to be a good developer and feeds you with good background informations how the internet works and stuf. so iam hyped. 
